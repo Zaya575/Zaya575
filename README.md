@@ -1,0 +1,10 @@
+- I hate C#.
+- Python Better
+- Im a sudent
+- C# is dumb
+- im 5'8"
+- C# is stupid
+- i breath oxygen
+- C# should burn
+- I use a mouse
+- C# shouldn't exist 
